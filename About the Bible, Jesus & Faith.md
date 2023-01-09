@@ -198,23 +198,23 @@ Our Bible
 - Catechism 80 page 31 - Sacred Tradition and Sacred Scripture are bound closely together
 - Catechism 82 page 31 - As a result the Church, to whom, the transmission and interpretation of Revelation is entrusted "does not derive he certainty about all revealed truths from the Holy scriptures alone. Both Scripture and tradition must be accepted honored with EQUAL sentiments
 
-***Colosians 2:8<br />
+- ***Colosians 2:8***<br />
 >> See to it that no one takes you captive through hollow and deceptive philosophy, which depends on human tradition and the elemental spiritual forces[a] of this world rather than on Christ"***
-- ***1 Corinthians 15:1-4<br />
+- ***1 Corinthians 15:1-4***<br />
 >> Now, brothers and sisters, I want to remind you of the gospel I preached to you, which you received and on which you have taken your stand. 2 By this gospel you are saved, if you hold firmly to the word I preached to you. Otherwise, you have believed in vain.
 3 For what I received I passed on to you as of first importance[a]: that Christ died for our sins according to the Scriptures, 4 that he was buried, that he was raised on the third day according to the Scripture***
-- ***Psalm 118:8<br />
+- ***Psalm 118:8***<br />
 >> It is better to take refuge in the Lord
     than to trust in man.***
-- ***John 17:17<br />
+- ***John 17:17***<br />
 >> Sanctify them[b] in the truth; your word is truth.***
 
 **About Bible Interpretation**<br />
 - Catechism 100 page 35 - The task of interpreting the Word of God authentucally has been entrusted Solely to the Magisterium (teaching authority) of the Church that is to the Pope and to the bishops in communion with him 
 
-- ***1 Tim 4:13<br />
+- ***1 Tim 4:13***<br />
 >> Until I come, devote yourself to the public reading of Scripture, to preaching and to teaching***
-- ***2 Peter 1:20<br />
+- ***2 Peter 1:20***<br />
 >> Above all, you must understand that no prophecy of Scripture came about by the prophet’s own interpretation of things***
 
 **About Mary**<br />
@@ -226,15 +226,15 @@ The most Blessed Virgin mar was from the first moment of her conception, by a si
 "Finally Immaculate viirgin, preserved free from all stain of original sin, when the course of her earthly life was finished was taken up body and soul into heavenly glory and exalted by the Lord as Queen over all things so that she might be fully conformed to her son the Lord of lords and conqueror of sin and death. The Assumption of Blessed Virgin is a Singular participation in her Son's Resurrection and an anticipation of the resurrection of other Christians" In giving birth you kept your virginity in your dormition you did not leave the world O Mother of God, but were joined to the source Life. You conceived the living God and by your prayers will deliver our souls from death
 
 - ***All of us are sinners***<br />
->> Romans 3:23<br />
+>> ***Romans 3:23***<br />
 for all have sinned and fall short of the glory of God
 
 - ***Jesus have brothers and sisters***<br />
->> Matthew 13:55-56<br /> 
+>> ***Matthew 13:55-56***<br /> 
 55 “Isn’t this the carpenter’s son? Isn’t his mother’s name Mary, and aren’t his brothers James, Joseph, Simon and Judas? 56 Aren’t all his sisters with us? Where then did this man get all these things?
 
 - ***Title Queen of heaven title in Jeremiah is a Pagan Goddess***<br />
->> Jeremiah 7:18-19<br />
+>> ***Jeremiah 7:18-19***<br />
 The children gather wood, the fathers light the fire, and the women knead the dough and make cakes to offer to the Queen of Heaven. They pour out drink offerings to other gods to arouse my anger But am I the one they are provoking? declares the Lord. Are they not rather harming themselves, to their own shame?***
 
 
@@ -257,21 +257,21 @@ The Pope, Bishop of ROme and Peter's successor, ot he perpetual and visible sour
 
 
 - ***Peter dont want to be worshiped***<br />
->> Acts 10:25<br />
+>> ***Acts 10:25***<br />
 When Peter entered, Cornelius met him and fell down at his feet and worshiped him. 26 But Peter lifted him up, saying, “Stand up; I too am a man.”***
 
 - ***Paul Rebuke Peter***<br />
->> Galatians 2:11-14<br />
+>> ***Galatians 2:11-14***<br />
 But when Cephas came to Antioch, I opposed him to his face, because he stood condemned. 12 For before certain men came from James, he was eating with the Gentiles; but when they came he drew back and separated himself, fearing the circumcision party.[a] 13 And the rest of the Jews acted hypocritically along with him, so that even Barnabas was led astray by their hypocrisy. 14 But when I saw that their conduct was not in step with the truth of the gospel, I said to Cephas before them all, “If you, though a Jew, live like a Gentile and not like a Jew, how can you force the Gentiles to live like Jews?***
 
 - ***Jesus was the Rock and Foundation***<br />
->> 1 Corinthians 3:11<br />
+>> ***1 Corinthians 3:11***<br />
 For no one can lay a foundation other than that which is laid, which is Jesus Christ.***
 
-- 1 Corinthians 10:4<br />
+- ***1 Corinthians 10:4***<br />
 >> and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ.***
 
-- Col 1:18<br />
+- ***Colossians 1:18***<br />
 >> And he is the head of the body, the church; he is the beginning and the firstborn from among the dead, so that in everything he might have the supremacy***
  
 ***
