@@ -1,5 +1,5 @@
 
-# **About the Bible** #
+# **About the Bible, Jesus & Faith** #
 
 ***
 ***
@@ -58,33 +58,6 @@ Oh how I love your law!
 But he answered, “It is written,
 “‘Man shall not live by bread alone,
     but by every word that comes from the mouth of God.
-
-
-
-
-
-
- ***
- ***
-
- ## **About Carved Images** ##
-
-- [Exodus 20:4-6] (https://www.biblegateway.com/passage/?search=Exod.20.4,Exod.20.5,Exod.20.6&version=ESV) 
-- [Deuteronomy 4:23-24] (https://www.biblegateway.com/passage/?search=Deut.4.23,Deut.4.24&version=ESV)
-- [Deuteronomy 4:16-18] (https://www.biblegateway.com/passage/?search=Deut.4.16,Deut.4.17,Deut.4.18&version=ESV)
-- [Jeremiah 10:14-15] (https://www.biblegateway.com/passage/?search=Jer.10.14,Jer.10.15&version=ESV)
-- [Leviticus 19:4] (https://www.biblegateway.com/passage/?search=Lev.19.4&version=ESV)
-- [Leviticus 26:1] (https://www.biblegateway.com/passage/?search=Lev.26.1&version=ESV)
-- [Habakkuk 2:18-20] (https://www.biblegateway.com/passage/?search=Hab.2.18,Hab.2.19,Hab.2.20&version=ESV)
-- [Isaiah 44:8-11 ] (https://www.biblegateway.com/passage/?search=Isa.44.8,Isa.44.9,Isa.44.10,Isa.44.11&version=ESV)
-- [Isaiah 42:8 ] (https://www.biblegateway.com/passage/?search=Isa.42.8&version=ESV)
-- [Isaiah 46] (https://www.biblegateway.com/passage/?search=Isaiah%2046&version=ESV)
-- [Psalm 97:7 ] (https://www.biblegateway.com/passage/?search=Ps.97.7&version=ESV)
-- [Act 17:29-31] ( https://www.biblegateway.com/passage/?search=Acts.17.29,Acts.17.30,Acts.17.31&version=ESV)
-
-**We should worship in truth and in Spirit**
-- [John 4:23-24] (https://www.biblegateway.com/passage/?search=John.4.23,John.4.24&version=ESV)
-
 
 
 ***
@@ -194,112 +167,129 @@ Our Bible
 
 
 
-**About Tradition and Scriptures**
-- Catechism 80 page 31 - Sacred Tradition and Sacred Scripture are bound closely together
-- Catechism 82 page 31 - As a result the Church, to whom, the transmission and interpretation of Revelation is entrusted "does not derive he certainty about all revealed truths from the Holy scriptures alone. Both Scripture and tradition must be accepted honored with EQUAL sentiments
+**About Tradition and Scriptures**<br />
+Catechism 80 page 31 - Sacred Tradition and Sacred Scripture are bound closely together<br />
+Catechism 82 page 31 - As a result the Church, to whom, the transmission and interpretation of Revelation is entrusted "does not derive he certainty about all revealed truths from the Holy scriptures alone. Both Scripture and tradition must be accepted honored with EQUAL sentiments<br />
 
-- ***Colosians 2:8***<br />
->> See to it that no one takes you captive through hollow and deceptive philosophy, which depends on human tradition and the elemental spiritual forces[a] of this world rather than on Christ"***
-- ***1 Corinthians 15:1-4***<br />
->> Now, brothers and sisters, I want to remind you of the gospel I preached to you, which you received and on which you have taken your stand. 2 By this gospel you are saved, if you hold firmly to the word I preached to you. Otherwise, you have believed in vain.
-3 For what I received I passed on to you as of first importance[a]: that Christ died for our sins according to the Scriptures, 4 that he was buried, that he was raised on the third day according to the Scripture***
-- ***Psalm 118:8***<br />
->> It is better to take refuge in the Lord
-    than to trust in man.***
-- ***John 17:17***<br />
->> Sanctify them[b] in the truth; your word is truth.***
+***Colosians 2:8***<br />
+See to it that no one takes you captive through hollow and deceptive philosophy, which depends on human tradition and the elemental spiritual forces[a] of this world rather than on Christ"
+***1 Corinthians 15:1-4***<br />
+Now, brothers and sisters, I want to remind you of the gospel I preached to you, which you received and on which you have taken your stand. 2 By this gospel you are saved, if you hold firmly to the word I preached to you. Otherwise, you have believed in vain.
+3 For what I received I passed on to you as of first importance[a]: that Christ died for our sins according to the Scriptures, 4 that he was buried, that he was raised on the third day according to the Scripture
+
+***Psalm 118:8***<br />
+It is better to take refuge in the Lord
+    than to trust in man.
+***John 17:17***<br />
+Sanctify them[b] in the truth; your word is truth.
 
 **About Bible Interpretation**<br />
-- Catechism 100 page 35 - The task of interpreting the Word of God authentucally has been entrusted Solely to the Magisterium (teaching authority) of the Church that is to the Pope and to the bishops in communion with him 
+Catechism 100 page 35 - The task of interpreting the Word of God authentucally has been entrusted Solely to the Magisterium (teaching authority) of the Church that is to the Pope and to the bishops in communion with him <br />
 
-- ***1 Tim 4:13***<br />
->> Until I come, devote yourself to the public reading of Scripture, to preaching and to teaching***
-- ***2 Peter 1:20***<br />
->> Above all, you must understand that no prophecy of Scripture came about by the prophet’s own interpretation of things***
+***1 Tim 4:13***<br />
+Until I come, devote yourself to the public reading of Scripture, to preaching and to teaching
+***2 Peter 1:20***<br />
+Above all, you must understand that no prophecy of Scripture came about by the prophet’s own interpretation of things
 
 **About Mary**<br />
-- Mary is Sinless . Perpetual Virgin, Mother of God the Queen of Heaven
+***Mary is Sinless . Perpetual Virgin, Mother of God the Queen of Heaven***<br />
 Catechism 491 page 138 - 
 "Mary full of grace through God, was redeemed from the moment of her conception"
-The most Blessed Virgin mar was from the first moment of her conception, by a singular grace and privilege of almighty God and by virtue of the merits of Jesus Christ Savior of the human race preserved IMMUNE from all stain of original sin
-- Catechism 966 page 274
+The most Blessed Virgin mar was from the first moment of her conception, by a singular grace and privilege of almighty God and by virtue of the merits of Jesus Christ Savior of the human race preserved IMMUNE from all stain of original sin<br />
+
+Catechism 966 page 274
 "Finally Immaculate viirgin, preserved free from all stain of original sin, when the course of her earthly life was finished was taken up body and soul into heavenly glory and exalted by the Lord as Queen over all things so that she might be fully conformed to her son the Lord of lords and conqueror of sin and death. The Assumption of Blessed Virgin is a Singular participation in her Son's Resurrection and an anticipation of the resurrection of other Christians" In giving birth you kept your virginity in your dormition you did not leave the world O Mother of God, but were joined to the source Life. You conceived the living God and by your prayers will deliver our souls from death
 
-- ***All of us are sinners***<br />
->> ***Romans 3:23***<br />
+**All of us are sinners**<br />
+***Romans 3:23***<br />
 for all have sinned and fall short of the glory of God
 
-- ***Jesus have brothers and sisters***<br />
->> ***Matthew 13:55-56***<br /> 
+**Jesus have brothers and sisters**<br />
+***Matthew 13:55-56***<br /> 
 55 “Isn’t this the carpenter’s son? Isn’t his mother’s name Mary, and aren’t his brothers James, Joseph, Simon and Judas? 56 Aren’t all his sisters with us? Where then did this man get all these things?
 
-- ***Title Queen of heaven title in Jeremiah is a Pagan Goddess***<br />
->> ***Jeremiah 7:18-19***<br />
+**Title Queen of heaven in Jeremiah was a Pagan Goddess**<br />
+***Jeremiah 7:18-19***<br />
 The children gather wood, the fathers light the fire, and the women knead the dough and make cakes to offer to the Queen of Heaven. They pour out drink offerings to other gods to arouse my anger But am I the one they are provoking? declares the Lord. Are they not rather harming themselves, to their own shame?***
 
 
 **Salvation includes Muslim**
-- Catechism 841 on page 242 & 243
+Catechism 841 on page 242 & 243
 "The plan of salvation also includes those who acknowledge the creator, in the first place amongst whom are the Muslim" these profess to hold the faith of Abraham and together with us they adore the one merciful GOd, mankind's judge on the last day"
 
-- ***John 14:6-7***<br />
->> Jesus answered, “I am the way and the truth and the life. No one comes to the Father except through me. 7 If you really know me, you will know[b] my Father as well. From now on, you do know him and have seen him
-- ***James 2:19***<br />
->> You believe that there is one God. Good! Even the demons believe that—and shudder
+***John 14:6-7***<br />
+Jesus answered, “I am the way and the truth and the life. No one comes to the Father except through me. 7 If you really know me, you will know[b] my Father as well. From now on, you do know him and have seen him
+***James 2:19***<br />
+You believe that there is one God. Good! Even the demons believe that—and shudder
 
 
 
 
-**About Pope**
+**About Pope**<br />
 
-- Catechism 882 on page 254
-The Pope, Bishop of ROme and Peter's successor, ot he perpetual and visible source and foundation of the unity both of the bishop and of the while company of the faithful. For the Roman Pontiff, by reason of this office as Vicar of Christ and as pastor of the entire Church ahs FULL , SUPPREME and UNIVERSAL Power over the while church a power which he can ALWAYS exercise UNHINDERED
+Catechism 882 on page 254
+The Pope, Bishop of ROme and Peter's successor, ot he perpetual and visible source and foundation of the unity both of the bishop and of the while company of the faithful. For the Roman Pontiff, by reason of this office as Vicar of Christ and as pastor of the entire Church ahs FULL , SUPPREME and UNIVERSAL Power over the while church a power which he can ALWAYS exercise UNHINDERED<br />
 
 
-- ***Peter dont want to be worshiped***<br />
->> ***Acts 10:25***<br />
+**Peter dont want to be worshiped**<br />
+***Acts 10:25***<br />
 When Peter entered, Cornelius met him and fell down at his feet and worshiped him. 26 But Peter lifted him up, saying, “Stand up; I too am a man.”***
 
-- ***Paul Rebuke Peter***<br />
->> ***Galatians 2:11-14***<br />
+**Paul Rebuke Peter**<br />
+***Galatians 2:11-14***<br />
 But when Cephas came to Antioch, I opposed him to his face, because he stood condemned. 12 For before certain men came from James, he was eating with the Gentiles; but when they came he drew back and separated himself, fearing the circumcision party.[a] 13 And the rest of the Jews acted hypocritically along with him, so that even Barnabas was led astray by their hypocrisy. 14 But when I saw that their conduct was not in step with the truth of the gospel, I said to Cephas before them all, “If you, though a Jew, live like a Gentile and not like a Jew, how can you force the Gentiles to live like Jews?***
 
-- ***Jesus was the Rock and Foundation***<br />
->> ***1 Corinthians 3:11***<br />
+**Jesus was the Rock and Foundation***<br />
+***1 Corinthians 3:11***<br />
 For no one can lay a foundation other than that which is laid, which is Jesus Christ.***
 
-- ***1 Corinthians 10:4***<br />
->> and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ.***
+***1 Corinthians 10:4***<br />
+and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ.
 
-- ***Colossians 1:18***<br />
->> And he is the head of the body, the church; he is the beginning and the firstborn from among the dead, so that in everything he might have the supremacy***
+***Colossians 1:18***<br />
+And he is the head of the body, the church; he is the beginning and the firstborn from among the dead, so that in everything he might have the supremacy
  
 ***
 ***
 **About Confession**<br />
 Catechism 1250 on page 350
 "Born with a fallen human nature and tainted by original sin children also have need of the new birth in Baptism to be freed from the power of darkness and brought into the realm of the freedom of the children of God, to which all men are called" The sheer gratuitousness of the grace of salvation is particularly manifest in infant Baptism. The Church and the parents would deny child the priceless grace of becoming a child of God were they not to confer Baptism shortly after birth"<br />
+
 Catechism 1492 on page 416
 "one who desires to obtain reconciliation with God and with the Church must confess to a priest all the unconfessed grace sins he remembers after having carefully examined his conscience. The confession of venial faults without being necessary in itself, is nevertheless strongly recommended by the Church"
 
 - You do not need a intermediary to come to Jesus the Holy spirit is our intercessor
 - A baby cannot believe on their own, someone else made a decision for them.
 
-- ***1 John 1:9***<br />
+***1 John 1:9***<br />
 If we confess our sins, he is faithful and just and will forgive us our sins and purify us from all unrighteousness.
-- ***1 Tim 2:5***<br />
+***1 Tim 2:5***<br />
 For there is one God and one mediator between God and mankind, the man Christ Jesus
-- ***Matthew 23:9***<br />
+***Matthew 23:9***<br />
 And do not call anyone on earth ‘father,’ for you have one Father, and he is in heaven.
 
 
 
-
-
-
-
- 
  ***
+ ***
+
+ ## **About Carved Images** ##
+
+- [Exodus 20:4-6] (https://www.biblegateway.com/passage/?search=Exod.20.4,Exod.20.5,Exod.20.6&version=ESV) 
+- [Deuteronomy 4:23-24] (https://www.biblegateway.com/passage/?search=Deut.4.23,Deut.4.24&version=ESV)
+- [Deuteronomy 4:16-18] (https://www.biblegateway.com/passage/?search=Deut.4.16,Deut.4.17,Deut.4.18&version=ESV)
+- [Jeremiah 10:14-15] (https://www.biblegateway.com/passage/?search=Jer.10.14,Jer.10.15&version=ESV)
+- [Leviticus 19:4] (https://www.biblegateway.com/passage/?search=Lev.19.4&version=ESV)
+- [Leviticus 26:1] (https://www.biblegateway.com/passage/?search=Lev.26.1&version=ESV)
+- [Habakkuk 2:18-20] (https://www.biblegateway.com/passage/?search=Hab.2.18,Hab.2.19,Hab.2.20&version=ESV)
+- [Isaiah 44:8-11 ] (https://www.biblegateway.com/passage/?search=Isa.44.8,Isa.44.9,Isa.44.10,Isa.44.11&version=ESV)
+- [Isaiah 42:8 ] (https://www.biblegateway.com/passage/?search=Isa.42.8&version=ESV)
+- [Isaiah 46] (https://www.biblegateway.com/passage/?search=Isaiah%2046&version=ESV)
+- [Psalm 97:7 ] (https://www.biblegateway.com/passage/?search=Ps.97.7&version=ESV)
+- [Act 17:29-31] ( https://www.biblegateway.com/passage/?search=Acts.17.29,Acts.17.30,Acts.17.31&version=ESV)
+
+**We should worship in truth and in Spirit**
+- [John 4:23-24] (https://www.biblegateway.com/passage/?search=John.4.23,John.4.24&version=ESV)
 
 
 
