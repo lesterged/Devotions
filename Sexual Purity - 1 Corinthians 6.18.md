@@ -3,7 +3,7 @@
 ***
 ## Sexual Purity ##
 ***
-1. <u>Acknowledge your Temptation Triggers</u>
+### 1. <u>Acknowledge your Temptation Triggers</u> ###
 
 - Understand what tempts you and it vital to take drastic steps to identify and remove anything and anyone that causes you to stumble. 
 
@@ -26,7 +26,7 @@ Galatians 5:16-17<br />
 
 
 ***
-2. <u>Escape Temptation</u>
+### 2. <u>Escape Temptation</u> ###
 - Leave before things get heated or when you see signs, Run towards the exit and dont look back
 
 > 1 Corinthians 10:13<br />
@@ -43,7 +43,7 @@ No temptation has overtaken you that is not common to man. God is faithful, and 
 
 
 ***
-3. <u> Resist Temptation with God's Word</u>
+### 3. <u> Resist Temptation with God's Word</u> ###
 
 - Our minds can be a gateway to temptation, so it essential to read the Bible daily and meditate on God's truth
 - Everything that you do should reflect the word of God. Be careful about what you allow yourself to ponder
@@ -69,7 +69,7 @@ And the tempter came and said to him, “If you are the Son of God, command thes
 
 
 ***
-4. <u>Pray and Praise God when Faced with Teptation</u><br />
+### 4. <u>Pray and Praise God when Faced with Teptation</u> ###
 - Pray for spiritual strenght and grace to flee sexual immorality. 
 - Focus your heart and mind on worshipping God
 
@@ -85,7 +85,7 @@ And the tempter came and said to him, “If you are the Son of God, command thes
 1. Set aside your quiet time to remove mental  distractions and focus on worshipping God.
 
 ***
-5. <u>Immediately Repent when you Fail</u>
+### 5. <u>Immediately Repent when you Fail</u> ###
 - God's love, patience and kindness should lead you to repentance when you fall. He does not want you to stay away from him 
 
 > Romans 2:4<br />
@@ -112,7 +112,7 @@ The Lord is not slow to fulfill his promise as some count slowness, but is patie
 1. Confess our sins to God and repent 
 
 ***
-6. <u>Seek Accountability Partners to Help with Temptation</u>
+### 6. <u>Seek Accountability Partners to Help with Temptation</u> ###
 - Having Accountability Partners (dgroup) can help each other stay focused on your goals. Be Honest, Transparent, Supportive and Trustworthy
 - Accountability Partners (dgroup) and you should have standards, expectation and establish boundaries. 
 
