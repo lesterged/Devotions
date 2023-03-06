@@ -61,7 +61,7 @@ You shall remember the Lord your God, for it is he who gives you power to get we
 No one can serve two masters, for either he will hate the one and love the other, or he will be devoted to the one and despise the other. You cannot serve God and money.
 
 
-> Characteristics of False Teachers who wandered away from faith and turned away from pursuing things of God in favor of money (1 Peter 5:2; 2 Peter 2:1-3;2 Peter 2:15)
+> Characteristics of False Teachers who wandered away from faith and turned away from pursuing things of God in favor of money (1 Peter 5:2; 2 Peter 2:15)
 
 
 
